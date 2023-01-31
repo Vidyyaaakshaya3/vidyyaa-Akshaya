@@ -1,2 +1,0 @@
-# vidyyaa-Akshaya
-Screen shot
